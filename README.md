@@ -1,0 +1,2 @@
+# premium-ivory-turn-001-alternative-ivory-turning-tagu
+Stop losing track of your tagua nut design iterations and turning specs—this Notion template turns your project chaos into a streamlined creative studio.  The Alternative Ivory Turning Tagua Nut Design Log eliminates the pain of scattered notes and forgotten measurements, giving you a dedicated space to log every design, track turning parameters, a
